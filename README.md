@@ -11,7 +11,7 @@ Ok here goes... The 619 represents San Diego. San Diego split into 619 and 858 a
 
 Street culture- drugs, gangs, org. crime, vice. Pre-Sheckler skateboarding, Bones Brigade, Bad Religion, NOFX, Lagwagon, Social D, The Floozies, Griz, Wu-Tang, The Pharcyde, phenomenology, The Hepatitis Bathtub, Harry Hays, happy and you know it? Clap your hands. Clap. Clap.
 
-Not really learning it yet. But I spent $5 for the package above free. After two years in Mexico, my language skills have actually deteriorated. Didn’t think that was possible. Oh, fuck off!!! Dammit, let me try that again.
+Not really learning it yet. But I spent $5 for the package above free. After two years in Mexico, my language skills have actually deteriorated. Didn’t think that was possible. !Que lastima! !Valgame dios! Oh, fuck off!!! Dammit, let me try that again.
 
 Like a new shitcoin. Maybe like one based on a dog that makes you see it’s asshole, like it or not. Hopefully not.
 
